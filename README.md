@@ -1,0 +1,2 @@
+# premium-key-lever-001-key-lever-linkage-and-pivot-pi
+That mushy, inconsistent key feel isn't just age—it's wear on the lever linkage and pivot pin. Without a systematic record, you're guessing when to replace, overhaul, or adjust.  The Key Lever Linkage and Pivot Pin Wear Record turns guesswork into data. This Notion template gives you a structured, searchable log to track measurements over time, spo
